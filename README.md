@@ -14,3 +14,13 @@ https://manus.im/
 
 智能体 agent
 
+
+谷歌商店里下载    manus  ai
+
+
+谷歌商店里可以下载手机版的   manus  ai
+
+
+
+
+
