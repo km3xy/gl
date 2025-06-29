@@ -1,5 +1,8 @@
 
-ksweb序列号购买地址
+ksweb序列号购买地址,用序列号就可以使用官方正版的软件了，
+
+
+软件下载去ksweb就可以下载
 
 https://www.kslabs.ru/buy
 
